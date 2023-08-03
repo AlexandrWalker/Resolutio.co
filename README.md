@@ -1,1 +1,1 @@
-# Resolutio.co: https://AlexandeWalker.github.io/Resolutio.co
+# Resolutio.co: https://alexandrwalker.github.io/Resolutio.co/
